@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAHJ800605MNLLRN01
+AAHJ800605MNLLRN01
